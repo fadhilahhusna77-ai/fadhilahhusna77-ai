@@ -1,3 +1,1 @@
-# Hi, I'm Fadhilah Husna 🤚
-
-## A
+# Hi, I'm Fadhilah Husna 👋
